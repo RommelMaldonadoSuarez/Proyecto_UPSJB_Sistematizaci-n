@@ -1,1 +1,1 @@
-# Proyecto_UPSJB_Sistematizaci-n
+# Proyecto_UPSJB_Sistematización
